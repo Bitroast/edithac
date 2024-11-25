@@ -1,3 +1,4 @@
 79.137.97.10,Ratheus Roleplay | V2.5 | Sesli/Yazili/Medium/Global/Hard | discord.gg/ratheusroleplay
 ekmek
 pide
+auto,Default MTA Server
