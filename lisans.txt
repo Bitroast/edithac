@@ -1,2 +1,2 @@
 79.137.97.10,Ratheus Roleplay | V2.5 | Sesli/Yazili/Medium/Global/Hard | discord.gg/ratheusroleplay
-127.0.0.1,Default MTA Server
+auto,Default MTA Server
