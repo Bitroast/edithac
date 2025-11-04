@@ -1,18 +1,1 @@
-188.119.17.116,Edith Test Ekmek
-185.160.30.10,Infernal Roleplay V2.0 | Sesli | Türk-Türkçe - MediumPlus - Hard Roleplay
-146.103.26.136,【TAG】✖ Türkiyem Adalet Gaming ✖ Askeri Polisiye Roleplay Serveri【TR/AZ】
-146.103.24.55, Forever Roleplay || Global Konsept - Text/Sesli Roleplay
-62.169.153.131,Rost Roleplay - İstanbulun Adaletsiz Sokakları [Global/Medium Ekonomi]
-92.249.60.150,✦ Nova Deathplay ✦Roleplay Tarzında Sesli Deathmatch Keyfi ✦ (Turk/Türk)
-194.113.226.34,[TR] Red Gaming [Meslek/Klan/Turf/Emek/RPG/Ev/Kasa/Ticaret/Turkish/Türkiye]
-146.103.26.67,[TR] MTA Türkiye ❖ Reckless Gaming Freeroam ❖ [Ankara/Türkiye/Klan/Tr/Turk/Ev/Drift]
-94.156.113.156,Gizem Roleplay V1 Sesli/Yazılı/Medium/Türk Roleplay
-85.235.74.208,█Anadolu Roleplay|Türk-Sesli|Modlu Araçlar|Yüksek FPS
-94.156.113.155,Latte Roleplay v1.0 | İstanbul-Medium-Global | Sesli/Yazılı
-146.103.24.40,Asil Roleplay  ☆ discord.gg/asilrp ☆ Türk / Türkçe ☆ Sesli ☆ Medium ☆ İstanbul ☆
-92.242.165.63,[TR] Vatan Roleplay | discord.gg/vatanmta | Türk | Sesli/Yazılı | Tek Gerçek VatanMTA
-45.141.150.160,[TR] LD Roleplay | discord.gg/ldgun | Türk | Sesli/Yazılı
-146.103.24.249,44 Roleplay V2 ❱ Istanbul-Medium-Global Roleplay ❰ discord.gg/kirk4rp [kirk4roleplay.info]
-146.103.26.77,█ Gayış Roleplay| discord.gg/gayis | ❱ Türkçe Sesli Roleplay Keyfi! ❰
-146.103.24.25,[TR] ❃ Türkiyem Başkent Gaming - [baskentgaming.com] Askeri Polisiye Roleplay 【TBG】 
-146.103.24.41,Türkiyem Anadolu Gaming
+
