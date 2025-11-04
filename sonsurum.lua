@@ -1,13 +1,18 @@
-MvbR×Kˆğûp½Ÿğd}£J|!Céø ÊòE³£c5×ø¢uZ±;æ‹ÍNîÏ·Z[¸7ĞõÜüzø+6é.¨€ÓUfIKÒÔˆ#^>^¹õà)r@&JeÓ§F0¬’FS€ú-Ó>Ïv«g6ÖksŒnïÿ’%6yjëÛ€{}Şà©†¾¾rıæ;±DÅy“ -+„ıÉª8zUkå’‹Í¾Õ–ù¾)µÌûÊ’•‹¦P¼“…Ô^¨ı°°k@0>¤g†~¤ tTc§®ëÙì‹½a”¡C¨G_0y0ãR×ºtnM8Øº_ÿÑ8°h'j¬ˆÛ„¤SVVIxîxÛX
-v.ÓÒW4˜X'Î~AAÑ›Š½l¿9ƒ\ş±Ê è}_ÅËÕëf= p^áû'¤Î…ŞI‡ÿB.vÚ^:4ŠBÅ$²qäz·
-´?ÍNìG˜Ì¬WÊx­ûvc†º	ïNXO›‘ºa¸ü(5ê\'.Õ–ÿ(áGYˆmo"ùÊÉÙ|ÓÊ’ªbØ“Ó­?ü¶T$v½¤Òq®Y™
-q»!côÁöIóqG5¸öˆ!áù—œ:×‘³‘òM6HÉHÀÕ®(¬CTÑ°lÃØfIÆÜn¸vÈm7|ã3[<ª š?7¼`–hl»x |r\N“ã“<°´“xÆ  ê<–ÿõ˜T™¬¨<Ø rôÀgİƒm	dc¦©¾Šã5ÕgÏ-ÇéÕNPZ>•®ºØNZÕ/îMÅ)ºÅó;Á Ù9JPl.1Û—ëA–2»FÈ]Ì
-e×%Ñƒ6Ç—C—·¾«Ìši¡1aÎÂv
-Ş;™”EL¬m5Æ.­›SÁá‡;%,Êû=inlãÑDİXÏ¦ôAd“gpÓñ…ÄÙ
-Ú†Œ2qjŠÆQ²Ê[ü1ÑJR¥Œ@·«üƒÔËê°ü9ûùšRãåÙåR3”dÿªúäÒ’ÖƒÆ…òA¯¾kô³à÷¾‡×~ÓXˆæğ'³ş³•óm•m®RS€
-ìE´ói¦LÚ¹K6Â4×’®ëĞ…[LÅ)P#ˆ¯<İ‹÷¥†Ó:Lpà€ö”šJ~eµ\c0Z6Ö
-˜a~¦¥ÂlÂ)’uu¾¬H„İdø|¬%¯µ
-¨ğùSœGœŒqbpÔr„ïpğçŠUÄò/Šá–~›ÊöÅ¢·†%>í‡N	Ê1¶V Øy|JH
-ı1ÙN\nnŸLËV8ÙE×PIİÊºÿçŠÑœQª.ÒPX•`^dp?bãChĞlÂÄïbˆ=‰azAøÒ$!oÂ¸du/¥ä"ÇØ
-í-o¾Ò±‚[’•–dš,Ù…i%öxâíÿ‘rŒ2~I3…ş0~‹Ûñ¥²Ùd˜~Q±cÃ![CSÆùÊ<#=t'€n?’>¸29ç‡x¡DjF£°TÅ<oj©hŸÖõgŠ£\ºÛzÂñtsùeÄ{È]6àØÒáPrA?ê¥I½†ÑÎ¯ÿQŠù7èÓEÜ&Oâ«îúƒè_ca]/¤ƒ          EXO\_j8ì<-L}(úhII=I”lnmmsQÚ17uK+ì}hHJ;@Šmfjnee9ì<,M|ÔLF}d
-,y¤\·UJñÉ  ”v <õÌä?’<‡5OØEÉTÔ•!SÙ±¦>ùôgbØ¸>Ñ™ó–¸9É…Fø?FiI1»f«Œ8Œİş¡^ÎOPÈ
+188.119.17.116,Edith Test Ekmek
+185.160.30.10,Infernal Roleplay V2.0 | Sesli | Türk-Türkçe - MediumPlus - Hard Roleplay
+146.103.26.136,【TAG】✖ Türkiyem Adalet Gaming ✖ Askeri Polisiye Roleplay Serveri【TR/AZ】
+146.103.24.55, Forever Roleplay || Global Konsept - Text/Sesli Roleplay
+62.169.153.131,Rost Roleplay - İstanbulun Adaletsiz Sokakları [Global/Medium Ekonomi]
+92.249.60.150,✦ Nova Deathplay ✦Roleplay Tarzında Sesli Deathmatch Keyfi ✦ (Turk/Türk)
+194.113.226.34,[TR] Red Gaming [Meslek/Klan/Turf/Emek/RPG/Ev/Kasa/Ticaret/Turkish/Türkiye]
+146.103.26.67,[TR] MTA Türkiye ❖ Reckless Gaming Freeroam ❖ [Ankara/Türkiye/Klan/Tr/Turk/Ev/Drift]
+94.156.113.156,Gizem Roleplay V1 Sesli/Yazılı/Medium/Türk Roleplay
+85.235.74.208,█Anadolu Roleplay|Türk-Sesli|Modlu Araçlar|Yüksek FPS
+94.156.113.155,Latte Roleplay v1.0 | İstanbul-Medium-Global | Sesli/Yazılı
+146.103.24.40,Asil Roleplay  ☆ discord.gg/asilrp ☆ Türk / Türkçe ☆ Sesli ☆ Medium ☆ İstanbul ☆
+92.242.165.63,[TR] Vatan Roleplay | discord.gg/vatanmta | Türk | Sesli/Yazılı | Tek Gerçek VatanMTA
+45.141.150.160,[TR] LD Roleplay | discord.gg/ldgun | Türk | Sesli/Yazılı
+146.103.24.249,44 Roleplay V2 ❱ Istanbul-Medium-Global Roleplay ❰ discord.gg/kirk4rp [kirk4roleplay.info]
+146.103.26.77,█ Gayış Roleplay| discord.gg/gayis | ❱ Türkçe Sesli Roleplay Keyfi! ❰
+146.103.24.25,[TR] ❃ Türkiyem Başkent Gaming - [baskentgaming.com] Askeri Polisiye Roleplay 【TBG】 
+146.103.24.41,Türkiyem Anadolu Gaming
